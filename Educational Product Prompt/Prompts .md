@@ -1,1 +1,7 @@
+1. create an educational product for children, explain and generate image
 
+2. create an educational product for children, explain and generate image. the educational product should help children understand gender equality. it should be playful but at the same time invoke a sense of responsibility in them.
+
+3. create an educational product for children, explain and generate image. the educational product should help children understand gender equality. it should be playful but at the same time invoke a sense of responsibility in them. it for children in the age of 5-12. it should be a board game. it should be reusable and relevant. the overall look should be creative and interesting to draw children towards them and make them exciting. the goal is to have a game which is fun at the same time gives a learning outcome.
+
+4. create an educational product for children, explain and generate image. the educational product should help children understand gender equality. it should be playful but at the same time invoke a sense of responsibility in them. it for children in the age of 5-12. it should be a board game. it should be reusable and relevant. the overall look should be creative and interesting to draw children towards them and make them exciting. the goal is to have a game which is fun at the same time gives a learning outcome.  present the output as three distinct design concepts, each with a rationale of why it fits the right target audience. generate images
